@@ -14,8 +14,7 @@
 
 Я люблю проводить время на природе. Я наслаждаюсь красотой окружающей меня природы и люблю исследовать новые места. 
 
-![Лес] (https://i.imgur.com/ZxJiL0S.jpeg)
-
+![Лес](https://sun9-77.userapi.com/impg/ieY46X1IOUFVXtE-_eXXMJba97Ri_FwIPhk5rQ/-DTMTTpxpkA.jpg?size=750x500&quality=96&sign=d4962bd7a43f402ca2ca4c28741d6d24&type=album)
 
 ## Вывод
 
